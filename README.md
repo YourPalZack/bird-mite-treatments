@@ -6,7 +6,7 @@ Are you dealing with a bird mite infestation in your home, office, or automobile
 ### Websites Related To Bird Mite Infestation Treatments
 - [BirdMiteHelp.com](https://birdmitehelp.com) - A website dedicated to educating readers that are dealing with bird mites in their homes or on their skin. Resources related to bird mite treatments include guides, tools and products, pest control professionals with bird mite experience, housepet treatments, updated research from scientific studies, and FAQs related to anything Bird Mites.
 - [Birdmites Reddit](https://www.reddit.com/r/birdmites/) - A community of people discussing bird mites on Reddit.com. A great place to ask questions and get answers from real people rather than websites looking to sell products and services.
-- Pest Control Professionals With Bird Mite Treatment Experience - A directory of pest control professionals and companies that have experience treating and removing bird mites from homes.
+- [Pest Control Professionals With Bird Mite Treatment Experience]([https://www.reddit.com/r/birdmites/](https://birdmitehelp.com/pest-control-professionals/))- A directory of pest control professionals and companies that have experience treating and removing bird mites from homes.
 
 ### Bird Mite Research Studies And Pages
 - [Gamasoidosis (Bird Mite Infestations In Humans)](https://en.wikipedia.org/wiki/Gamasoidosis) - Gamasoidosis, also known as dermanyssosis, is a frequently unrecognized form of dermatitis, following human infestation with avian mites of the genera Dermanyssus or Ornithonyssus.
